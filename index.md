@@ -20,3 +20,5 @@ Nun nutzt sie ihre neuen Fähigkeiten, um die zu bestrafen, die ihre Familie ver
 
 > Ein Mädchen ist Arya Stark von Winterfell und ich gehe jetzt nach Hause.
 - Arya Stark zu Jaqen H'ghar ("Niemand")
+
+<img src="https://vignette.wikia.nocookie.net/gameofthrones/images/b/b2/804_Arya_Profil.jpg/revision/latest?cb=20190520172941&path-prefix=de"/>
