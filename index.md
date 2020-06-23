@@ -17,3 +17,6 @@ Nun nutzt sie ihre neuen Fähigkeiten, um die zu bestrafen, die ihre Familie ver
 * Alter: 17 Jahre
 * Herkunft: Winterfell
 * Status: Am Leben
+
+> Ein Mädchen ist Arya Stark von Winterfell und ich gehe jetzt nach Hause.
+- Arya Stark zu Jaqen H'ghar ("Niemand")
